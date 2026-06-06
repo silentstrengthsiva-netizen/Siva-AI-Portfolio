@@ -43,4 +43,12 @@ To become a professional AI Content Creator and build automated AI content syste
 
 ## 📫 Contact
 
+
+## 🔗 Live Work / Proof Links
+
+- Instagram: [https://instagram.com/tinycreatorlab](https://www.instagram.com/tinycreatorlab/)
+- GitHub Portfolio: [https://github.com/siva-ai-portfolio](https://github.com/silentstrengthsiva-netizen/Siva-AI-Portfolio)
+- AI Projects (Reels): [https://www.instagram.com/reels/DZMsneERHBP/](https://www.instagram.com/reels/DZMsneERHBP/)
+- 
+
 Instagram: @tinycreatorlab
